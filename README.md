@@ -5,4 +5,4 @@ https://get.kwind.app/flasher
 
 
 
-![IMG_9338 2](https://github.com/user-attachments/assets/bf90f5ad-b330-4765-bd24-a624a9d01a83)
+![IMG_9339](https://github.com/user-attachments/assets/3acfe3c4-66c1-439c-8bd9-8bdbd74f3350)
